@@ -4,4 +4,4 @@
 >
 --------------------------------------
 >
-![alura-cast](https://user-images.githubusercontent.com/116017647/236454208-eb3347ac-5434-4035-8a8a-a8a7664f915d.png)
+![alura-cast](https://user-images.githubusercontent.com/116017647/236485594-36c26d25-ccfc-4644-aaae-fdd794826c73.png)
